@@ -1,0 +1,1 @@
+My name is Raymond currently a Full-stack Software Engineer looking to transition to a full-stack data scientist role. Besides coding I like to hike and explore nature (currenlty have a trip to Alaska planned for the winter). I also enjoy working out and going to the track (for cars). A field in tech that I am particularly interested in is e-commerece and wearable tech.
